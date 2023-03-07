@@ -1,2 +1,0 @@
-# Daniel-
-Todo curioso 
